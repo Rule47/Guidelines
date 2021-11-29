@@ -1,0 +1,1 @@
+# Rule47 Guidelines
